@@ -23,7 +23,7 @@ into the book. Some differences based on what I can recall:
   AK is really a kind of educational primer on that place 
   and time. That may sound kind of tedious but Tolstoy 
   has a way of occupying the reader's attention with these 
-  issues without allowing the book to ever devolve into some
+  issues without allowing the book to devolve into some
   dry would-be Platonic dialogue. Those issues are just 
   "in the air" at the same time as all the emotionally 
   gripping dramatic events are taking place. It adds to the
