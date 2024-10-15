@@ -59,7 +59,7 @@ into the book. Some differences based on what I can recall:
   events taking place in their surroundings.
 
 - One of the major themes of AK is infidelity. In part the
-  book is a deep exploration on the possible costs and rewards 
+  book is an intense exploration of the possible costs and rewards 
   of being unfaithful to a loveless marriage for the 
   sake of what presents itself, at least initially, as true love. 
   A lot of those costs seem specific to the 
