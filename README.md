@@ -9,8 +9,8 @@ into the book. Some differences based on what I can recall:
 
 - AK presents to the reader a much richer depiction 
   of the social/cultural and political issues prevalent in 
-  late 19th century Russia than BK. The latter seems more an 
-  intimate story that could relatively easily be transplanted
+  late 19th century Russia than BK. I recall the latter 
+  seeming like a story that could relatively easily be transplanted
   to another country, and perhaps another time. I suppose in 
   principle AK could be transplanted in such a way, but 
   it would mean having to rethink the motivations and 
