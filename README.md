@@ -29,8 +29,8 @@ into the book. Some differences based on what I can recall:
   gripping dramatic events are taking place. It adds to the
   intense realism of the storytelling and makes the world
   of the characters deep and convincing, just as 
-  when a good sci-fi story feels like it takes place
-  in a "lived in" world.
+  when we say that the world of a good sci-fi story feels 
+  "lived in".
 
 - BK seems more to make Christianity a major theme than AK.
   Religion does come to the fore at different times in AK,
