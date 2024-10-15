@@ -62,6 +62,12 @@ into the book. Some differences based on what I can recall:
   book is an intense exploration of the potential costs and rewards 
   of being unfaithful to a loveless marriage for the 
   sake of what presents itself, at least initially, as true love. 
+  A lot of those costs seem specific to the 
+  legal and societal strictures binding marriage and divorce
+  in 19th century Russia, but others are more universal.
+  BK doesn't touch on that topic at all, as far as I know. 
+  AK, unlike BK, is a genuine and at times quite 
+  passionate "forbidden love" story. 
   Tolstoy got his initial inspiration for the novel via
   real-world events involving an illicit aristocratic love affair
   and set out to write a book on that topic, but then
@@ -72,9 +78,3 @@ into the book. Some differences based on what I can recall:
   and the meaning of life, probably because those were topics 
   that were constantly on Tolstoy's mind at the time apart
   from the initial conceit of the story.
-  A lot of those costs seem specific to the 
-  legal and societal strictures binding marriage and divorce
-  in 19th century Russia, but others are more universal.
-  BK doesn't touch on that topic at all, as far as I know. 
-  AK, unlike BK, is a genuine and at times quite 
-  passionate "forbidden love" story. 
