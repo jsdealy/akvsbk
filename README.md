@@ -14,7 +14,7 @@ into the book. Some differences based on what I can recall:
   to another country, and perhaps another time. I suppose in 
   principle AK could be transplanted in such a way, but 
   it would mean having to rethink the motivations and 
-  concerns of many of the characters in massive ways. 
+  concerns of many of the characters in big ways. 
   There are long discussions in AK concerning, for instance,
   the value of the Zemstvo institutions in Russia. One of the 
   main characters is trying fitfully throughout the story
