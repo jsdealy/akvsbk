@@ -59,9 +59,15 @@ into the book. Some differences based on what I can recall:
   events taking place in their surroundings.
 
 - One of the major themes of AK is infidelity. In part the
-  book is an intense exploration of the possible costs and rewards 
+  book is an intense exploration of the potential costs and rewards 
   of being unfaithful to a loveless marriage for the 
   sake of what presents itself, at least initially, as true love. 
+  Tolstoy got his initial inspiration for the novel via
+  real-world events involving an illicit aristocratic love affair
+  and set out to write a book on that topic, but then
+  found himself blending in a bunch of other material about
+  family and the meaning of life, probably because those were
+  topics that were constantly on his mind anyway.
   A lot of those costs seem specific to the 
   legal and societal strictures binding marriage and divorce
   in 19th century Russia, but others are more universal.
