@@ -50,11 +50,11 @@ into the book. Some differences based on what I can recall:
   realistic job of depicting the physical details of 
   scenes and characters. Conversations involve far less
   extended monologue. Tolstoy uses internal monologue 
-  brilliantly. His deftness in authentically depicting 
-  his characters' thoughts concisely and convincingly 
-  is one of the principle joys of the book. At times this
-  internal monologuing even approaches stream-of-consciousness 
-  style---fifty or so years ahead of Joyce---as characters' 
+  brilliantly. His deft way of presenting his characters' 
+  thoughts concisely and convincingly is one of the major 
+  joys of the book. At times this internal monologuing 
+  approaches stream-of-consciousness style---fifty or so 
+  years ahead of Joyce---as characters' 
   thinking mingles "in real time" with their reactions to
   events taking place in their surroundings.
 
