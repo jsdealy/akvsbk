@@ -16,8 +16,8 @@ into the book. Some differences based on what I can recall:
   it would mean having to rethink the motivations and 
   concerns of many of the characters in big ways. 
   There are long discussions in AK concerning, for instance,
-  the value of the Zemstvo institutions in Russia. One of the 
-  main characters is trying fitfully throughout the story
+  the value of the [Zemstvo](https://en.wikipedia.org/wiki/Zemstvo) 
+  in Russia. One of the main characters is trying fitfully throughout the story
   to work out his ideas on the moral and economic problems 
   troubling relations betweeen Russian peasants and landowners. 
   AK is really a kind of educational primer on that place 
