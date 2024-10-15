@@ -66,7 +66,7 @@ into the book. Some differences based on what I can recall:
   legal and societal strictures binding marriage and divorce
   in 19th century Russia, but others are more universal.
   BK doesn't touch on that topic at all, as far as I know. 
-  AK, unlike BK, is a genuine and at times quite 
+  So, AK, unlike BK, is a genuine and at times quite 
   passionate "forbidden love" story. 
   Tolstoy got his initial inspiration for the novel via
   real-world events involving an illicit aristocratic love affair
