@@ -19,7 +19,7 @@ into the book. Some differences based on what I can recall:
   the value of the [Zemstvo](https://en.wikipedia.org/wiki/Zemstvo) 
   in Russia. One of the main characters is trying fitfully throughout the story
   to work out his ideas on the moral and economic problems 
-  troubling relations betweeen Russian peasants and landowners. 
+  in the relations between Russian peasants and landowners. 
   AK is really a kind of educational primer on that place 
   and time. That may sound kind of tedious but Tolstoy 
   has a way of occupying the reader's attention with these 
