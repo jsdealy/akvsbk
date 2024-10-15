@@ -66,9 +66,12 @@ into the book. Some differences based on what I can recall:
   real-world events involving an illicit aristocratic love affair
   and set out to write a book on that topic, but then
   found himself blending in a parallel narrative peopled with
-  other characters whose concerns center more around the importance
-  of marriage, family, and the meaning of life, probably 
-  because those were topics that were constantly on his mind anyway.
+  a host of other characters whose lives only tangentially
+  intersect with the infidelity story, and whose concerns 
+  center more around the importance of marriage, family, 
+  and the meaning of life, probably because those were topics 
+  that were constantly on Tolstoy's mind at the time apart
+  from the initial conceit of the story.
   A lot of those costs seem specific to the 
   legal and societal strictures binding marriage and divorce
   in 19th century Russia, but others are more universal.
