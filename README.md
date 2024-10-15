@@ -59,10 +59,10 @@ into the book. Some differences based on what I can recall:
   events taking place in their surroundings.
 
 - One of the major themes of AK is infidelity. In part the
-  book is a deep dive into the costs and rewards 
+  book is a deep exploration on the possible costs and rewards 
   of being unfaithful to a loveless marriage for the 
-  sake of genuine love, or what at least presents itself 
-  as genuine love. A lot of those costs seem specific to the 
+  sake of what presents itself, at least initially, as true love. 
+  A lot of those costs seem specific to the 
   legal and societal strictures binding marriage and divorce
   in 19th century Russia, but others are more universal.
   BK doesn't touch on that topic at all, as far as I know. 
